@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Imantha99
 - 👀 I’m interested in Web Development
-- 🌱 I’m currently learning Web Desinging and BCS 
+- 🌱 I’m currently learning Web Desinging and BCS Heq
 - 💞️ I’m looking to collaborate on people who have share their professional experiences and knowledge with others.
 - 📫 How to reach me imantharanasinghe99@gmail.com 
 
